@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tubbelax
-- 👀 I’m interested in boobs
+- 👀 I’m interested in 
 - 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on code
 - 📫 How to reach me mail
